@@ -17,7 +17,7 @@
 
 # -- Project information -----------------------------------------------------
 
-project = 'Costituente 2020'
+project = 'Non Siamo sudditi'
 copyright = '2020, Popolo Italiano'
 author = 'Popolo Italiano'
 
