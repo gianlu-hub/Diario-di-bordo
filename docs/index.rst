@@ -3,8 +3,8 @@
    You can adapt this file completely to your liking, but it should at least
    contain the root `toctree` directive.
 
-Dissenso vero Repubblica e Le Monde sull'articolo scritto da Saviano
-====================================================================
+Dissenso verso Repubblica e Le Monde sull'articolo scritto da Saviano
+======================================================================
 
 Spett. la Repubblica, Gentile Direttore
 Egr. dr. Roberto Saviano
