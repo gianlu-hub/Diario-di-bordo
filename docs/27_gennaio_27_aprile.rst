@@ -28,7 +28,7 @@ terrorizzi: "*Quel piano del governo tenuto nascosto ​per non
 scatenate il panico*" (ilgiornale.it 21/04/2020).
 
 Dunque facciamo così: "*Siamo prontissimi...*" afferma il Prof. Conte
-il 27/01/2020 quattro giorni dopo il *lockdown* di Wuhan: "*...continuiamo
+il 27/01/2020 quattro giorni dopo il *lockdown* di Wuhan: "*... continuiamo
 costantemente ad aggiornarci con il Ministro Speranza.*"? (Conte
 27/01/2020).
 
@@ -46,8 +46,8 @@ D’accordo, procediamo. Scuole aperte, scuole chiuse, poi riaperte poi
 richiuse: "*Cambia di nuovo tutto. Il* `Tar <http://www.corriereadriatico.it/t/tar>`__
 `Marche <http://www.corriereadriatico.it/t/marche>`__, *con decreto urgente del 
 suo presidente, ha sospeso in via cautelare l'ordinanza con cui la Regione 
-Marche aveva disposto la chiusura di* `scuole <http://www.corriereadriatico.it/t/scuole/>`__
-... *lo Stato c'è e si fa rispettare. Così il ministro per gli Affari regionali
+Marche aveva disposto la chiusura di* `scuole <http://www.corriereadriatico.it/t/scuole/>`__...
+*lo Stato c'è e si fa rispettare. Così il ministro per gli Affari regionali
 e le Autonomie, Francesco Boccia*" (corriereadriatico.it 27/02/2020).
 
 Mascherine: non servono. Mascherine: non ci sono. Non servono perché non
@@ -70,7 +70,7 @@ statali alle regioni. Manca che si debba aspettare vent’anni anche per i
 tamponi.
 
 In effetti da un certo punto di vista può sembrare che la situazione sia
-sfuggita di mano. Cosa voleva dire il Prof. Conte con "*...continuiamo
+sfuggita di mano. Cosa voleva dire il Prof. Conte con "*... continuiamo
 costantemente ad aggiornarci con il Ministro Speranza...*"? Speranza era
 dall’altro capo del telefono? Era stato aggiunto in chat da Bonafede? Il
 fatto è che la chat da gennaio aveva cambiato nome diverse volte:
@@ -148,7 +148,7 @@ colpevoli. Chi è stato a tagliare le terapie intensive? I politici si
 guardano, non ricordano con precisione, qualcuno non si ricorda nemmeno
 di quale partito faceva parte.
 
-Sembra però che il "...*taglio dello 0,4% del Pil in 10 anni che porta
+Sembra però che il "... *taglio dello 0,4% del Pil in 10 anni che porta
 la firma dei governi Berlusconi IV, Monti, Letta, Renzi, Gentiloni,
 Conte*". (corriere.it 31/03/2020).
 
@@ -184,7 +184,7 @@ La gente comune è disorientata ma fortunatamente il ministro Bonafede
 spiega che è tutto normale. Tutto rientra nell’ordinario:
 "*L'opposizione ha attaccato il governo e il ministro Bonafede ha
 dovuto spiegare che i mafiosi sono esclusi dalle leggi varate
-dall'esecutivo durante l'emergenza...Non è stato scarcerato grazie
+dall'esecutivo durante l'emergenza... Non è stato scarcerato grazie
 alle* **norme speciali** *adottate dal governo per combattere
 l’epidemia di coronavirus, cioè grazie al decreto Cura Italia. No, il
 colonnello di Bernardo Provenzano è uscito solo applicando le leggi
@@ -202,9 +202,9 @@ completamente sebbene non abbia ancora avuto luogo stato il *referendum*
 sulla riduzione dei parlamentari: "*Rinviato il referendum del 29
 marzo sul taglio dei parlamentari*" (interno.gov.it 17/03/2020).
 
-"*Esercito nelle strade e parlamento vuoto: un brivido cileno...Non ci
+"*Esercito nelle strade e parlamento vuoto: un brivido cileno... Non ci
 spaventa il "reato di passeggiata", ci spaventa il parlamento vuoto.
-Cari parlamentari, prendete esempio dai medici e tornate a bordo...Dunque
+Cari parlamentari, prendete esempio dai medici e tornate a bordo... Dunque
 arriva l’esercito nelle strade. Il premier lo annuncerà stasera o al
 massimo domani*" (ildubbio.news 20/03/2020).
 
@@ -258,10 +258,10 @@ di 50 milioni di euro all’anno dovrebbe funzionare come Amazon*"
 
 E dobbiamo investire di più anche sull’organico, pare che nel mese di
 marzo 2020 siano state gestite le pratiche che normalmente vengono
-gestite in cinque anni "*...stiamo parlando di undicimila domande
+gestite in cinque anni "*... stiamo parlando di undicimila domande
 compresa la cassa integrazione, è una situazione senza precedenti,
 pensate che questa mole di domande veniva trattata mediamente dall’INPS
-in cinque anni, è stata trattata...in un solo mese...*" (Giuseppe Conte
+in cinque anni, è stata trattata... in un solo mese...*" (Giuseppe Conte
 diretta RAI 26/04/2020).
 
 La gente a questo punto si chiede cosa facciano i dipendenti dell’INPS
@@ -353,7 +353,7 @@ Attenzione però. Conte deve avere pescato carte diverse da quelle di
 Gualtieri e Gentiloni: "*Il MES è uno strumento inadeguato*"
 (10/04/2020)
 
-A questo punto non è molto chiaro: "*...Salvini e Meloni... questo governo
+A questo punto non è molto chiaro: "*... Salvini e Meloni... questo governo
 non lavora col favore delle tenebre, questo governo guarda in faccia gli
 italiani e parla con chiarezza...*" (11/04/2020).
 
@@ -507,7 +507,7 @@ con la presenza delle industrie, né tanto meno con l’inquinamento: "*È
 ufficiale, il coronavirus è trasportato dal particolato atmosferico.
 Possibile "indicatore" precoce di future recidive dell’epidemia
 da Covid-19. Studio effettuato da Sima,  ricercatori dell'Università di
-Bari, Bologna e Trieste, e dell’ateneo di Napoli "Federico II...A tal
+Bari, Bologna e Trieste, e dell’ateneo di Napoli "Federico II... A tal
 proposito, l’epidemiologo Prisco Piscitelli spiega: "Ad oggi le
 osservazioni epidemiologiche disponibili per Italia, Cina e Stati Uniti
 mostrano come la progressione dell'epidemia Covid-19 sia più grave in
@@ -596,7 +596,7 @@ di lavoro nazionali se ne aggiungono altri 30 a livello locale con
 almeno altri 400 componenti. Record di tavoli alla Giustizia*"
 (24plus.ilsole24ore.it 19/04/2020).
 
-"*...Per l’esattezza oggi ci ritroviamo con 15 task force di cui
+"*... Per l’esattezza oggi ci ritroviamo con 15 task force di cui
 fanno parte 450 esperti a costellar le varie commissioni che
 dovrebbero condurci fuori dall’incubo coronavirus. O per meglio dire
 portarci dalla fase più critica alla tanto agognata fase 2. Un numero
