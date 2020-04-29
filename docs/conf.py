@@ -17,9 +17,9 @@
 
 # -- Project information -----------------------------------------------------
 
-project = 'Non Siamo sudditi'
-copyright = '2020, Popolo Italiano'
-author = 'Popolo Italiano'
+project = 'Diario di bordo'
+copyright = 'Gian Luca Grossi'
+author = 'Gian Luca Grossi'
 
 # The full version, including alpha/beta/rc tags
 release = '1.0.0'
